@@ -1,3 +1,3 @@
 # How Shane works with AI agents
 
-The page: https://blog.shanekeulen.com/how-i-work-with-agents/
+The page: https://hiwwa.seethruhead.vip/
